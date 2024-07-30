@@ -1,5 +1,5 @@
 ### Hi there 👋
-Aspiring data and business intelligence analyst here.
+Former tree climber turned DATA and Business Intelligence Analyst here.
 Looking to improve my visulaization skills and to put them to use in the data field.
 I've just received my BI Analyst certificate from #TripleTen
 Hoping to learn more about data and broaden my horizons and skill sets as well!
